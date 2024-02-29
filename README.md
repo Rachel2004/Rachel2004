@@ -6,4 +6,3 @@ As a student of Computer Information Systems at the University of the Fraser Val
   Email - [ray.gupta2004@gmail.com](mailto:ray.gupta2004@gmail.com) <br>
   LinkedIn - [Rachel Gupta](www.linkedin.com/in/rachel-gupta-1b68a2286)
 - 😄 Pronouns: she/her
-- 👻 Hobbies: Painting, Reading Novels, Yoga
